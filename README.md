@@ -1,5 +1,5 @@
 # 💫 About Me:
-👾 Hi coders and non-coders... <br>🤖 19 y/o..<br>🎓 Btech CSE Lret'27 <br>🍃 Experimenting with new programming languages as stream of time flows.<br>🫂 Looking for collaboration on some cool projects. <br>🤖 Apart from that , my passion is video editing, photo editing.<br>🗿 Riding bikes is my escape from this acursed race.<br>💫Keep learning, keep improvising, Stay healthy, stay happy.<br>🐸 Gotta go , bYe bYe fellas...
+👾 Hi coders and non-coders... <br>🤖 20 y/o..<br>🎓 Btech CSE Lret'27 <br>🍃 Experimenting with new programming languages as stream of time flows.<br>🫂 Looking for collaboration on some cool projects. <br>🤖 Apart from that , my passion is video editing, photo editing.<br>🗿 Riding bikes is my escape from this acursed race.<br>💫Keep learning, keep improvising, Stay healthy, stay happy.<br>🐸 Gotta go , bYe bYe fellas...
 
 
 ## 🌐 Socials:
